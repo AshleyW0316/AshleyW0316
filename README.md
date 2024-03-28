@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with businesses in data analysis.
 - 📫 How to reach me: ashleywoolwine@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I live in a Tiny Home.
+- ⚡ Fun fact: I live in a Tiny Home in the mountains of North Carolina.
 
 <!---
 AshleyW0316/AshleyW0316 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
